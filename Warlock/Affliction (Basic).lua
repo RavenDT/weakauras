@@ -5,7 +5,7 @@
 
 Compressed String
 
-!TRvBZjoos4)oB(WMctGKmvD7vfqi7KDiqwmSz2zRLGFry0gJeNTCsiFGF7x3swyzJH4KzYCzQlvn1ezzPwD3QF5PBZeRjJMyhpXU(HwhF4XtSxmX2h)hmRtKxpclqmFs)JoU2eBxEKpjQTJ3T(r8LtSBhsF8rNi)1thX5Hckm1ddMnlMiM0hw(k9yR6WtomV58OR4uMa25GrJgCPMID4H8i4a7BH7RFD5)FK8)BGtcBiEPJhbFLTJNGYzXsUw4ejGbW7PmA6OzWW45YXWtIiAqajkwr9rBMah6tCtMnB0QLKj2FSBVRoFCp49YhDsICQJNkjm8c)yfLJtCj3rycByx0hMyFtNw2JUXEuRHaXsqgWEzOZkG42mNfK0Dj3cCaeNqqrUHixfrKeX(QU96HRlHLXAcfZ7XdtwWSvIU1e7ihFAsmOfQb6ZKysp6c4qDb2nKgWMy3PB)rDhk1lscHxcHCh5DjS8B8cDIJrvqcrkBE4lwKa3CA1LAfOQLYccHvDDRH9g05tfwwm9rsX9ct7MAzyEFAjVpTK3NwY7ZAh2exSdJUWrqq2p2ZjujHbru)RP(OfxtT1bUc1OU(balzTE6v0hiHG(GeaMcQlq)vGoN6feXtwQxVnYMOntOurHKmMdwm2motEjlalYbl12tsnoduEmX5Gvgic2dBD2fJT1mlSotZUuBffX8blgCb3OMmMaKcmCaAUWHYQ(Q3y(wT1l0Y6gFTJ1ZCbt7ik4E3b(ai73)0AhHwpuWhV1SzHuP306PxGsoyLGZ)52)2yRR)YTIoEa)ebMYGjJJWrEdPCJphNvP4T7mSB3(OhOGeXCc)d9jv)yP(CgnqPBHRM7b)GbdV4ld6pQf4RbtKzCJx9kko8m5g9PgxmXKWzPXo0w5rCH6kber8QBJlU3En)KHtwzeMkxGjnX9GaA(87z23tbwQnmrsSGVye5bX4L(ODRDs6F1lvAD6URaugHLYcw9ebOqF2acJer9SNZVFadzK8tyhd)Tv49oRI3vSL9fNdyqrs8tfAdydz4T2LfyRtQ4dELr8GisC86P)Kng48GIrfJGyGY30hOYe7ZioI5UqId1reV5nT3kY7MxbwvnSQDms50Zh8I5zoiq4bf1alwVBrkHp44c(9UxY9rAxiw7EuO4fey(K)sjFcI9P3aLYaw4kKjQusajr1ky0LOvaNTsXVOAemMcikLLwnL7QT1WlXR2sYLaw))pti6WJIsKXy)Mijn22hrtIIN8ymwUBiz90SiDinF2I0EvqE8fUugrACjnE(inyojElznNkVQsBZDlTVU3AF0b4fvgXxrX74snl1bLk4IVLJSw0KHuwp9tmqQlgYz7alvns3UcMwmqd5biGFjbVuHRACQ1PwLj72(04)jHbgL3r0zx2KLrTYE8akMbwUko7NehS(3wpD90iIijcI3(tI)Y6Vxp1HbaWf)v9SHhLnSHEiS4MWyEemKXf47o(Vp4aGKeMVkP1DK0dwQFvjklnR(TeYYwi(rXquxiHWTD(5yb172vNP1xUsv6qjKnJSDqc1BIN7azq(Sro5udHex89PRsn8S2PpwHS8Y1nJJm15r0hxp93tC8rKmqbl5p7kubIXQ)ttovoDM03A8ObgNSYhyW4r9UOF305VJgtHWsOgr(Coaix0VF3H3OQpA4f)6hhPbOS1H(pGTcD2Qmf(MdvH71QUERMAwjQjYiPUS)aGN0P4cc53FEe5)KqyERqu61BACpGVvAV)RHATLRApkj0nri4SbamtWXt9cDPJw1upBkabH51574cex2NlSn95ANv0aYfZbJnga(a3S64HOwWtNQEQTUucPV3CceeddVwOaPLeHRJqKE3a0NjmkgcyUuOk3rGJtTQkwXKesIIGTnlgRTriQBLbWYMXtpo94gtLorP1TPzkRsojmOTJytOifH3aDAhvVzwnf1dJWzIEVKILEKdHSWRLCG1tXGpNaWVmIU3)NbZX7CIOygzWnP)zPlABKVOiLTsotJWeNnekDvI3xLCAUdlGKrb17bXEjufkjsSsA7Ey9dLgoAl9Sx6tIHunrimEHMMsrVDU31odKp64CgngznFjyFm1K7olXYaI7olCQyfw3Nw)BT0YXgE2OdUZE8rF6pUfJhJhJcUt4Y5QDy20fiTcM7dRNdCfQ38dnpkJ7LBR0sz3rbMMfHAukB1wDwPSvA9zOTFbvNvOgm9L4tvDvE8eLujWa2qIJ)QIWkQqjvMyjkGKXOiQDGYOs1wvo4J8fzLca5zuGv6g2loP9xTvXswRqbxA182iJCGkGkdDYpBv7ReFIHd(3iSj)WGmPicKDHu5BfYKTaDucWKTrV8whzImKrjiu2jYeRxnKjwNuc0KQGuypysYH6OiKKmegFDTmEBqhzP1QGFKzMVITm8fMYwv5Bg4Mk3a0sqijZFp)KtdwC95dPZcZYF7MhDLro)CjWRF0X1)WPp3Ek(2ofVSxuLOSEn7jBvWdKVNyciHw8aaNOJ8db8VEXnCXizVz3BYL(nFRu2bMa4kfamhNpT5L0y0VR6n)QQTMP(EBnZs(9imOgPJUHVrr9V)LcWdsvhxP2XoKT8ORK0uEG9pPcTbkhslmwP8OmFqsRNO5ppzpA2fsK3M9jzCR37tY)F3NK2FN6tYlVHifBbIxAKXNr)n2U9ivV5gpPA959tnyFyrmb18IqLuA4Cf(I)S2LXnD)cPwJF)zGwXS5nBGHyGozxisSaej1p9T9xepxLD6VzuP)Yu(U95FFj)(umGladhswu2h5AZ3i8fHAypyvkfssPyFYJLjhmQiYcdmu)soCsW7MyF0xlIKVUVH5wFoYuT8Z9d0ULCkfUgVKVW53R2F86a7qPrEh5X7ip((J8Osih2)xDzN9845GQP0p(YhoT2lQjiLuO8B5uV6cT3aVqIRP9oX10jbWBSEkFgaSrf6OcrnQmihj(OgDBD9jpwRV3Nhxf0ovTnsfbz08hEqg7nh6ZchXE(PHu(pP2c5znsyV)ForgawQA61FGsMIY675sFpx67vX)EIsJ4EF7trAFsWjNDX9N8qVKxXuKWkVdyMg1roCY)9d
+!TR1EZjUTw8Vo7(hndMhjzN527mqcPB6sGum0KUDkb)qyuJXMAlhc5p4Z(9CKSWYViMeY2T9MzYeKLLLo68835inrBYOj6Ht0RFK2XhD8e9ft0TX)GEncS6r8CyZN0VXX1MOB6hytc6yyDVDG)Yj6DCPp9KrG9MPJ89DzuORhhmBwiHnPpm81Y2A1HNm8SM7hCTp1JbF5GrJgCLCgpZ31pawW(A431Vo))n4)Vj2j8bHlnSi4R0nSyuFVqovZmcyqd49upACRzqZW582WtSaQJdjium7J22b20MygnB2O1ljt0)C3ExFX4EW75pAefyuhxvIR7L2HIzomYK8aXJPdFf9Xj63DwB9r3PpQ9qyYIqcqFPRXAyY3o0Rdi8HQFD3EWKZ7dwmIHlWu19mwqcLuAKxcPXeDz57gTWtxS11MOhyytJcbUqnGFgfs6rxalQjqUUuhVj6N1T)OUdHX5ZmqMexk46BWfMW4VZY1ime5bre(MZcFXIiq0jPcXiqEl1ZXfg1nTh2BWzFjZWcPprY(Tq3MXQgQcunUavJlq14c0Ah1chSHhDHbJG0FOLHRylola4jabAWm4pluqWXiA112bikTntVM(iXf2QehyJkKH2Rbgk1YjWpAPC86iHIQnH(GQIUNVhx6YavXblLksWlC5SY(TqMUhOx5XUau0GnH(W2NF5yDj5ICvfnVy1fX0Adkn4aUt0zibMkq3bM9fguVQp6TAWvB8m5EDR5gyfhrbJ4B78ZJ1U5R3ZoZcMlFRhadbUAXP1AGQq4yApBMlLBsTz6L4ExoBx6jTJDcO23qTr3aTK2XxGYjbBx)SHD72hnbzKapd3FvUk1pMZnNrDe8yqWScu(hm8YVoO)O29qf1vjA34YiMXHNZ)qBQIakK4ol25HunhecC7fGgrn3TM4fiExR4wkLJi5CzboWS9x5PVIcuqhOJOqM)IrKhzJxAJQP6rX)khkxv0SmhskUHsCo9moKqtudtqt18kFBov4q8ibul95(Rgag4HWVTDxzSoSuxm7WPgqDSOWNZpgqdCFzDu9pj9CDw8EhS)c8DciHHBM(bD0l5hZ6cmaCYXFtFywMOFoXGn3eIsiwIWTVPto3SBFfOb1uRgQn7fV(GO1pXuaCeiMnWFH194mHpKMN1jRV1DWtrbe4RiTqjDaHDX6a(Yap31iDKXrFjYkCsL8y0cOTJV3Ab9ICsqzYHi4xsovkPB7HxHs3cIDa(A)BBtCMFqqe327GStAM3grofzx5XOJBtxYMPjo1W5CV3s7Kbz5VWK6r4wOCLNptDMtcZTxtXYR6UTv5723wP2NnaArG54nC7DCHQLvYVukB(49i39YMPFXd2(P9CLZfd2b5rWvDgppfZDs7jlVB5m(Ju8y18uTt1kAVRBtd)ZipqP8bIm6Y2OmIr2Z3HcbQNXhLV3hyFCZpVz6MPbewua4Y9dSFx7p2m1WdaCZ(96jnBK0SPSjm4wqB)aOPNpdF3X)Xh)imLepBrqRhiXlmFBjWzxyq87jKLTr4ISHOmGJylF4yBsiihdWyKco7qo2mLiDqW07cNBabqUvjECSsqKj((4rjAEEN4hT2jEsoHZh3mFKGUiG(0MP)sKHncJesoj9AxHSnug9VPsP8Ut25ThpAqCVpqdPGRhK1SLse2ddgpQ3L97g3FkWhx2VF3H3jYfA4L)0NhjbNKBr)tqpHoBDgi(KrC2u)b40l(YBZ(LiHiabRvFB4nhx)vxeq(RiIN1AeqE9wkYb8TCT(FYvYTmfFJyhzgXy(Eda0KGbI4fY0e1QjEwDd44MMNxIaeh2Tz(m56QVn)aovmNADVhG9a)yXYdESGNov8uhzodC7U5eWbg6AntUqljmtdglwMbZVhtjVhG4IrQ8abwoXOQyYrCejIjSJAExQ(LUN7ZkPhlz74LBmLBLfNIMKO0kyLqh2gSTWOet8wKtLKOMAAtul0RQkq9It1PKequtsrjvNQn6KuDQ04HV4jFWVjQFKkbbHdgR5eagOsiM()aeC6bJakclaSx7FE8GYd)g5TjJ03tI0f71fsxMNKHic5CdphsYmiEpW)xcz(scyR5grhv)iUgS0Kl5Lk(jzY5Kld6WZ4)5StKPFG2(Ntdr61MNgcgkYS088uWFVkoxomxi3LZfjAxAAD8mjhE(Op(G(4gF5xVhJrGlaFlNnDD1Y)ab8WiOysLa1xV1NA1iH656RmWoE95Ya7MB5vVGS1YKtMKF(QZ2AG3qIH96SqcQqwwPGJKgVGsEv7Uqr7oDRIH0KoVRyaj7roxXFq1bJDisatYMZJuYaYiQi0k)GwTdhEfZddEL)XGwPm0jzrXCOqRKhjsbWvYbP57D0kCxgfGAPu0kAVzOv0oPa4kvb9WoWPKcjswykjOoEDvmopqKSHuQG1KAuNS1n8fgUuKpCcAJkeOSGYoYJDo)KtDwCZfdPZCtIDAMgXLsi5uHnR3446F609TgJFhJFtwBQkivFlRzBvWhKUMzmiax4aacNb)ub(pvV8tGOaWCgMoC3v0q0Ejx5AsxKLDgeU4dNkdqcfOgk1i6fuhU67S0nza4S0Ffj4o)TCR)7pg7fd7xPivxZFofuPs2h8VKVM9pj(Pj6n3RZKRGY4ijj(e3jnUMNTgoLHm51whLCWIpiytg3(9AP8)31sPZ3OAP8YlAs2YKyfNOYEudK8LqPQ4oki8TkUI97AhKffsEqnViujfgIrGY43QDvylZVsQ18xQeAf16OSfgIc6KYqKObisQF633hhEQm7KNH0FZiooCxBfqfFizbh9IkcfO7Uy1a0fWck6aYk58f37dpsbuXUb3KgIcso8EO2sk6tNwtynUqbA1pY7yIEJNRkeVqOl8jVzHCS9MvKimkF3PkgEoqD54eV(tD7nPEk)JX8)GaEsy48o(P3Xp9Th)uLW)S7ZxQ0k5SpyZk8yMqpCV8s7uaKR8j)itvpPumigPoLIr6SiabZMP(ZaqscZ2uW4Q4bE0SB7Bo5PA9TUDCvGiv1QoLpDp5L(4FtWtQ0vwzVklIs4ZkCbDZeJwjO((CzLEDvgjMaZe7)WIVqR5XN04tXwOzHYSFWm2Ij6fXcASZIdLVC1TKEvuokXy(Xi(GtDPEsxJ60LWPSBbzQdOkDzGYC3DQ4LH8WELEuVwpIB1dErDYEPEk9Q68oyT)nCkCVJt796C9TVoxFBaHLex9fb)s)eNto)YvN8yVO3A4xq7hakQzDuJAY)l
 
 ]]--
 
@@ -971,14 +971,14 @@ Compressed String
         [1] = {
             ["trigger"] = {
                 ["type"] = "aura2",
-                ["unit"] = "target",
                 ["subeventSuffix"] = "_CAST_START",
-                ["useName"] = true,
                 ["matchesShowOn"] = "showOnMissing",
                 ["event"] = "Health",
-                ["names"] = {
-                },
+                ["unit"] = "target",
+                ["useName"] = true,
                 ["spellIds"] = {
+                },
+                ["names"] = {
                 },
                 ["auranames"] = {
                     [1] = "Corruption",
@@ -990,6 +990,50 @@ Compressed String
             ["untrigger"] = {
             },
         },
+        [2] = {
+            ["trigger"] = {
+                ["rem"] = "4",
+                ["auranames"] = {
+                },
+                ["ownOnly"] = true,
+                ["event"] = "Health",
+                ["subeventPrefix"] = "SPELL",
+                ["debuffType"] = "HARMFUL",
+                ["unit"] = "target",
+                ["type"] = "aura2",
+                ["useExactSpellId"] = true,
+                ["remOperator"] = "<=",
+                ["auraspellids"] = {
+                    [1] = "146739",
+                },
+                ["subeventSuffix"] = "_CAST_START",
+                ["useRem"] = true,
+            },
+            ["untrigger"] = {
+            },
+        },
+        [3] = {
+            ["trigger"] = {
+                ["type"] = "status",
+                ["unevent"] = "auto",
+                ["duration"] = "1",
+                ["event"] = "Talent Known",
+                ["subeventPrefix"] = "SPELL",
+                ["subeventSuffix"] = "_CAST_START",
+                ["unit"] = "player",
+                ["use_unit"] = true,
+                ["use_absorbMode"] = true,
+                ["use_talent"] = true,
+                ["talent"] = {
+                    ["single"] = 5,
+                },
+                ["use_inverse"] = true,
+            },
+            ["untrigger"] = {
+            },
+        },
+        ["disjunctive"] = "custom",
+        ["customTriggerLogic"] = "function(t)\\n    return t[1] or t[2] and t[3]\\nend",
         ["activeTriggerMode"] = -10,
     },
     ["internalVersion"] = 26,
@@ -1000,7 +1044,7 @@ Compressed String
         [1] = {
             ["text_shadowXOffset"] = 0,
             ["type"] = "subtext",
-            ["text_text"] = "Corr",
+            ["text_text"] = "",
             ["text_color"] = {
                 [1] = 1,
                 [2] = 1,
@@ -1016,14 +1060,14 @@ Compressed String
             },
             ["text_shadowYOffset"] = 0,
             ["text_selfPoint"] = "AUTO",
-            ["text_fontSize"] = 12,
-            ["text_visible"] = false,
+            ["rotateText"] = "NONE",
+            ["text_fontType"] = "OUTLINE",
             ["text_anchorPoint"] = "INNER_BOTTOMRIGHT",
             ["anchorYOffset"] = 0,
             ["text_justify"] = "CENTER",
-            ["rotateText"] = "NONE",
+            ["text_fontSize"] = 12,
             ["anchorXOffset"] = 0,
-            ["text_fontType"] = "OUTLINE",
+            ["text_visible"] = false,
         },
         [2] = {
             ["glowFrequency"] = 0.25,
@@ -1071,27 +1115,12 @@ Compressed String
     },
     ["regionType"] = "icon",
     ["icon"] = true,
+    ["xOffset"] = 0,
     ["color"] = {
         [1] = 1,
         [2] = 1,
         [3] = 1,
         [4] = 1,
-    },
-    ["xOffset"] = 0,
-    ["stickyDuration"] = false,
-    ["cooldownTextDisabled"] = false,
-    ["auto"] = true,
-    ["zoom"] = 0,
-    ["id"] = "Corruption",
-    ["anchorFrameType"] = "SCREEN",
-    ["frameStrata"] = 1,
-    ["width"] = 50,
-    ["config"] = {
-    },
-    ["uid"] = "S7g7DIw7xLu",
-    ["inverse"] = false,
-    ["alpha"] = 1,
-    ["conditions"] = {
     },
     ["animation"] = {
         ["start"] = {
@@ -1107,9 +1136,23 @@ Compressed String
             ["type"] = "none",
         },
     },
+    ["cooldownTextDisabled"] = false,
+    ["auto"] = true,
+    ["zoom"] = 0,
+    ["id"] = "Corruption",
+    ["anchorFrameType"] = "SCREEN",
+    ["alpha"] = 1,
+    ["width"] = 50,
+    ["config"] = {
+    },
+    ["uid"] = "S7g7DIw7xLu",
+    ["inverse"] = false,
+    ["frameStrata"] = 1,
+    ["conditions"] = {
+    },
+    ["stickyDuration"] = false,
     ["authorOptions"] = {
     },
 }
 
 -- EOF
-
