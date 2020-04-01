@@ -5,22 +5,37 @@
 
 Compressed String
 
-!vx13Vjooq4)wU(0DsTi(rPBF5EGTlO2kkfHZU90jKbt8KeRASZg7qHvNYF73m2bO3U3d7l3dNaLyg)nJN5B(gdVhpHZu8z9gCt)ED5mhN1VtVB6CdNTLZK0xeqQvBRWfZ6f(2p8Cq4510tpND45Smh45tUA41dhm8ddg8HBVTBVBUTpp7QRhYzctAHTAUvzq0jppF64jHiB1s7Bg2BQsG)r0qTZB3Ma79FUuk8aNv3((i0XYCGVbZ6uRH8WxPYZHkxm)sozGww7GzITHalQRegCDlogZwRXJYau2d7akTUheAFbYc1BcwMxbzQ9i25JNofnxcA9dskc(ZGy1zbqRUBelzflz0c6GnkesPwCate2XZfn5pG1ziz6JKlSbDojy6(XtNp5Ztjm1MZLGNmis9QDqs04twjWNDf2TWDq2eQmc9xqcqH8XS(yN7vakhHjBQFHWRSezjmQT0AdXkoVOYtlKyAqgxfZkhGukwETjPPLC2kuMFE0zkJYv8tJ3tSGt4jSH2ksRlGC0TwcRau5fEuUH8L2kc6rQ2O3BR1E1rskvlCUFWkQawzW(uvi2QVbFpcetv48ITHGQ6KwJ0HFs5eB0GKcW(wv(S(dPHfqN99c6VzTB5Z6sTyVnipTP7o2CUT7GU4wk57LFSSkuEGQwHxeuMcDzbUQBhCQ5nLefKHIhdioa9CP)m3utrcM8LSx86bp81)K0d0HfisSqYu5rGKak615MpkjDICOT78Y9pGQ8fy3WUQDhk7pcc7ryyo9BAzCsLAkPcDZ62DAw)7nRViPqyETz9bBDZ6mBvZAFbUJ7yn)lx08yRBPchQGdErdfRaZUoyk6HoXDOX3MhvzNrkmYZ)O5V(rhPzVGB0PAAEerf(WaJ8UcH)PyM(RTz8Lx0w7xCPrPVmg5FR5reDGnWS2eA(462AgjMOvQDHMZ123qe)d1))L07thEhz2SUq4Awd7lvvG8)Hu7j2K9aDBwMifwoskF24w(ciEDeMcULpbsLyjJW5w(r7ELjFufyeblDS55)B9NvPOo0aACCBYFeVUufV47e0nTxEGxnPE3Kv8FRMqtMX7fy3Ty84z04Jk91dFQ9QTytFhQdUUp93G8)(p
+!9A1wVPooq4FlBEIk1fbPxo7l9bo00tBfeqXHUs7QtiUjojEpgB2yhk0hYV9DSDcx7TNwbIe7mZ3mFJhMVe1pkmcrJ87FX1U97fHKri3U9VU71rOfrOu9xWaLizfPusf8i))O3f9adXvQcr5KLkytjyJcmLiXQQsSIe9maAcy93JqRNKLjjQiF3Ra3semrjyUFFZxxZVxy(9s9VkTjcwQ4fEizT6wQe)mJKQbCtlq)E)RUkcvsYHqhUzjPjwimpbsPPckhqjCY0rE3fUdo0luWuiH(fHSCGCjjrfGHSxdn4Egn3YIw79sZn8aN0srKuHlvwROCAZDzWTYcZ9WkvjnphkvwkgUDdZTMCfdvix7fijymAAJXi3EFR330Gqwr0u4EcMPkGWw9SzNPLKm66ieAQ3OrW2AVFiTP4xPti0sgEdemuLK4TgYCK1gnT54fKgBBbevLzaC(WbOW5OWbbH6tXNHTT1179gn9UzJS4VJjAMchDhYUKkPsSyEbnL0UOLYTRAVMvXnf1oMS4864UD7Ew9J1X2p0S6yZtQJV5M6yNHtg)9bHZhn5hZ9EYZpC(m)7EyuOxG3To1XQccFNVTFyIemRogyQxdsWccdo074Esap2jrvzcXhQx772vFQBMA9T77t)3pwVlm2JWTrFgCUQx0XX(aN3alDbBx0bNmDsNAhMNEe(3CaBpXH3U2Eqy3vG1hvMwZM2Pzdh6HqoFgkhrFOjvIZTC3jSaZ)vD8grvDCMO0aLjJzqJeN8BoFoSicpDybwn2IBNg8p35pV)biBdCoNtzNVRiC27djHjjVlNhmlyW8aVXtE6d6k)kCE8M9yyDCbwcrE9sAjj9)B(cTlp(HBEOfBVRKaYaCOiuwbnvGrFYihZtaLNp4p6BNVyNO0mH8lnO8ngEHsPY)XmeA1jJNcTwosKtt2BuL6S3GF)D)F2WpSbRgFhlGzGwXmyqq2XksWksjhZEQvs19AJEQqpMgZPl0Ys89fCAMJYHoci31sSGbnLcjbuVavaiclWu(x36TcxFn71IEarrTTMrOxfqvZhe1ZkHgjqlaRWgHSxOPWXH)fAzo2YcyZEDbf7kT)NjeH)OZRxw9x)RUsOFTcJmlC2fyu0B0Oki08cLfeDkq37fnycS51s0I46RlQykA7rBcdlLNSRK(k54nvTVYWD683Q4Hgg455RF0kGkx6QpeJ(V)
 
 ]]--
 
 -- Soulstone Indicator
 {
+    ["width"] = 32,
+    ["authorOptions"] = {
+    },
+    ["regionType"] = "icon",
+    ["xOffset"] = 250,
     ["color"] = {
         [1] = 1,
         [2] = 1,
         [3] = 1,
         [4] = 1,
     },
-    ["yOffset"] = -154.99987792969,
+    ["actions"] = {
+        ["start"] = {
+        },
+        ["finish"] = {
+        },
+        ["init"] = {
+        },
+    },
+    ["yOffset"] = -155,
     ["anchorPoint"] = "TOPLEFT",
+    ["internalVersion"] = 26,
     ["cooldownSwipe"] = true,
-    ["customTextUpdate"] = "update",
+    ["auto"] = true,
+    ["uid"] = ")ooTG(z4uZq",
     ["cooldownEdge"] = false,
     ["icon"] = true,
     ["triggers"] = {
@@ -28,107 +43,85 @@ Compressed String
             ["trigger"] = {
                 ["type"] = "aura2",
                 ["subeventSuffix"] = "_CAST_START",
-                ["auranames"] = {
-                    [1] = "Soulstone",
-                },
                 ["event"] = "Health",
                 ["subeventPrefix"] = "SPELL",
                 ["spellIds"] = {
                 },
-                ["useName"] = true,
-                ["names"] = {
+                ["auraspellids"] = {
+                    [1] = "20707",
                 },
                 ["unit"] = "player",
+                ["names"] = {
+                },
+                ["useExactSpellId"] = true,
                 ["debuffType"] = "HELPFUL",
             },
             ["untrigger"] = {
             },
         },
-        ["activeTriggerMode"] = -10,
+        [2] = {
+            ["trigger"] = {
+                ["subeventPrefix"] = "SPELL",
+                ["type"] = "custom",
+                ["custom"] = "function(event, ...)\\n    if event == \\\"COMBAT_LOG_EVENT_UNFILTERED\\\" then\\n        local subEvent = select(2, ...)\\n        local sourceName = select(5, ...)\\n        local spellID = select(12, ...)\\n        \\n        local playerName = UnitName(\\\"player\\\")\\n        if spellID == 20707\\n        and playerName == sourceName\\n        then\\n            if subEvent == \\\"SPELL_CAST_SUCCESS\\\" then\\n                local message = \\\"Thank you for the soulstone!\\\"\\n                SendChatMessage(message,\\\"WHISPER\\\",nil,sourceName)\\n            elseif subEvent == \\\"SPELL_AURA_REMOVED\\\" then\\n                local message = \\\"My soulstone has expired!\\\"\\n                SendChatMessage(message,\\\"WHISPER\\\",nil,sourceName)\\n            end\\n        end\\n    end\\n    \\n    return true\\nend",
+                ["subeventSuffix"] = "_CAST_START",
+                ["events"] = "COMBAT_LOG_EVENT_UNFILTERED",
+                ["custom_type"] = "event",
+                ["event"] = "Health",
+                ["custom_hide"] = "custom",
+            },
+            ["untrigger"] = {
+            },
+        },
+        ["disjunctive"] = "custom",
+        ["customTriggerLogic"] = "function(t)\\n    return t[1]\\nend",
+        ["activeTriggerMode"] = 1,
     },
-    ["internalVersion"] = 26,
+    ["alpha"] = 0.5,
+    ["cooldownTextDisabled"] = false,
     ["keepAspectRatio"] = false,
     ["animation"] = {
         ["start"] = {
-            ["type"] = "none",
             ["duration_type"] = "seconds",
+            ["type"] = "none",
         },
         ["main"] = {
-            ["type"] = "none",
             ["duration_type"] = "seconds",
+            ["type"] = "none",
         },
         ["finish"] = {
-            ["type"] = "none",
             ["duration_type"] = "seconds",
+            ["type"] = "none",
         },
     },
-    ["desaturate"] = false,
+    ["id"] = "Soulstone",
+    ["zoom"] = 0,
+    ["frameStrata"] = 1,
+    ["anchorFrameType"] = "SCREEN",
+    ["selfPoint"] = "TOPLEFT",
+    ["config"] = {
+    },
+    ["inverse"] = false,
     ["subRegions"] = {
     },
     ["height"] = 32,
+    ["conditions"] = {
+    },
     ["load"] = {
-        ["class"] = {
-            ["multi"] = {
-            },
-        },
         ["spec"] = {
             ["multi"] = {
             },
         },
-        ["use_never"] = false,
+        ["class"] = {
+            ["multi"] = {
+            },
+        },
         ["size"] = {
             ["multi"] = {
             },
         },
     },
-    ["regionType"] = "icon",
-    ["cooldownTextDisabled"] = false,
-    ["authorOptions"] = {
-    },
-    ["actions"] = {
-        ["start"] = {
-            ["message_type"] = "WHISPER",
-            ["do_message"] = true,
-            ["message_dest"] = "",
-            ["do_glow"] = false,
-            ["custom"] = "local message = \\\"Thank you for the soulstone!\\\"\\nlocal caster = aura_env.state.casterName\\nif caster and caster ~= aura_env.state.unitName then\\n    SendChatMessage(message,\\\"WHISPER\\\",nil,caster)\\nend",
-            ["do_sound"] = false,
-            ["message"] = "",
-            ["sound"] = 1,
-            ["do_custom"] = true,
-        },
-        ["init"] = {
-            ["do_custom"] = false,
-        },
-        ["finish"] = {
-            ["message_type"] = "WHISPER",
-            ["do_message"] = true,
-            ["message_dest"] = "",
-            ["message"] = "",
-            ["custom"] = "local message = \\\"My soulstone has expired!\\\"\\nlocal caster = aura_env.state.casterName\\nif caster and caster ~= aura_env.state.unitName then\\n    SendChatMessage(message,\\\"WHISPER\\\",nil,caster)\\nend",
-            ["do_sound"] = true,
-            ["do_custom"] = true,
-            ["sound"] = "Interface\\\\AddOns\\\\WeakAuras\\\\Media\\\\Sounds\\\\BoxingArenaSound.ogg",
-            ["sound_channel"] = "SFX",
-        },
-    },
-    ["zoom"] = 0,
-    ["auto"] = true,
-    ["stickyDuration"] = false,
-    ["id"] = "Soulstone",
-    ["width"] = 32,
-    ["alpha"] = 0.5,
-    ["anchorFrameType"] = "SCREEN",
-    ["uid"] = "eFVfWtl3IqZ",
-    ["config"] = {
-    },
-    ["inverse"] = false,
-    ["frameStrata"] = 1,
-    ["conditions"] = {
-    },
-    ["selfPoint"] = "TOPLEFT",
-    ["xOffset"] = 250,
+    ["desaturate"] = false,
 }
 
 -- EOF
-
